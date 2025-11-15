@@ -12,5 +12,7 @@ Subscribe now to stay ahead in the world of technology and elevate your tech jou
 
 https://www.youtube.com/@saaraanand20
 
+https://tech-with-saara.lovable.app/
+
 Follow me on LinkedIn: linkedin.com/in/saara-anand-0477a1213
 <img width="806" height="208" alt="image" src="https://github.com/user-attachments/assets/d4f155d5-4d58-4000-aa4c-df80cf9bdaf3" />
